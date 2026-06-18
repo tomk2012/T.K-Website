@@ -1,0 +1,1 @@
+Dit is een Website over mij, er is een Release beschikbaar voor mensen die dat willen en ik hoop dat er goed mee om wordt gegaan. Check mijn Website even als je wilt en ik hoop dat mensen meer te weten kunnen komen over mij. + Misschien ook de hobby's kunnen overnemen/Ook leuk gaan vinden.
